@@ -1,1 +1,1 @@
-# New-Free-Stealer-FUD join https://discord.gg/vgcvr4A9Tw reward freekey
+# New-Free-Stealer-FUD https://discord.gg/vgcvr4A9Tw Enter and open ticket and request your key
